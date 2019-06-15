@@ -92,7 +92,7 @@ class Home extends Component {
                     fontSize: 60,
                   },
                 }}>
-                Nhật Ký Đời Tôi
+                Biển Đảo Quê Hương Tôi
               </h1>
               <p
                 css={{
@@ -114,7 +114,7 @@ class Home extends Component {
                     fontSize: 30,
                   },
                 }}>
-                Điểm Hẹn & Các Cảnh Đẹp...
+                Bỗng Dưng Nhớ Lại Kỷ Niệm Xưa...
               </p>
               <Flex
                 valign="center"

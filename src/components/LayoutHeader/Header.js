@@ -87,7 +87,7 @@ const Header = ({location}) => (
                 border: 0,
               },
             }}>
-            Phú Quốc Điểm Hẹn
+            Phú Quốc Team
           </span>
         </Link>
 
@@ -116,7 +116,7 @@ const Header = ({location}) => (
           }}>
           <HeaderLink
             isActive={location.pathname.includes('/blog')}
-            title="Biển Xanh và nơi hò hẹn"
+            title="Biển Đảo và nơi hò hẹn"
             to="/blog/"
           />
         </nav>
@@ -148,7 +148,7 @@ const Header = ({location}) => (
                 borderRadius: 15,
               },
             }}
-            href="https://qualprotech.com/"
+            href="https://acmarketchrome.com/"
             target="_blank"
             rel="noopener">
             Bakadono {version}

@@ -9,7 +9,7 @@
 module.exports = {
   siteMetadata: {
     title: 'Phú Quốc Điểm Hẹn',
-    siteUrl: 'https://qualprotech.com',
+    siteUrl: 'https://acmarketchrome.com',
     rssFeedTitle: 'henhophuquoc',
     rssFeedDescription: 'Đoàn Bình và Phú Quốc Điểm Hẹn',
   },
