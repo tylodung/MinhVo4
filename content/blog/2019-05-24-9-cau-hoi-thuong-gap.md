@@ -4,29 +4,29 @@ layout: post
 author: [doanbinh]
 ---
 
-Dưới đây là 9 câu hỏi thường gặp về tour tết Phú Quốc 2018 mà rất nhiều bạn đang có dự định lên kế hoạch đi Phú Quốc kỳ nghỉ lễ dịp này đều quan tâm.
+Dưới đây là 9 câu hỏi thường gặp về tour tết Phú Quốc 2018 mà rất nhiều bạn đang có dự định lên kế hoạch đi Phú Quốc kỳ nghỉ lễ dịp này đều quan tâm. 
 
-![ten buc hinh](http://zoomtravel.vn/thumb/400x267/1/upload/product/tour-ha-tien-phu-quoc-cau-ca-lan-ngam-san-ho-le-29201823333.jpg "ten buc hinh")
+![ten buc hinh](https://www.chudu24.com/wp-content/uploads/2018/07/1-320.jpg "ten buc hinh")
 
 **Phương tiện di chuyển là gì?**
 
 Giao thông đi lại đến Phú Quốc cũng được ‘đa dạng hóa’ nhằm đáp ứng nhu cầu đó của mọi người. Du lịch Phú Quốc tết Mậu Tuất 2018, nếu du khách ở xa có thể đến Phú Quốc bằng đường hàng không, ai thích vi vu trên cung đường nhựa có thể di chuyển bằng ô tô rồi lướt trên sóng, cho luồng gió biển mát rượi ‘chạm’ vào mặt để ra đảo.
 
-*Máy bay*
+**Máy bay**
 
 Muốn đi Phú Quốc bằng máy bay, du khách có thể tìm đến 3 sân bay Hà Nội, Tp. HCM hay Cần Thơ để bắt chuyến bay tùy theo thời gian mà mình mong muốn.Hiện nay, Vietnam Airlines là hãng hàng không có nhiều chuyến bay đến Phú Quốc nhất. Chặng bay từ Hà Nội – Phú Quốc mỗi ngày một chuyến, Tp. HCM – Phú Quốc 18 chuyến/ngày, Cần Thơ – Phú Quốc 1 chuyến/ngày. Bên cạnh đó, Vietjet Air cũng khai thác đường bay Tp. HCM – Phú Quốc mỗi ngày một chuyến, Hà Nội – Phú Quốc 2 chuyến/ngày. Jetstar Pacific Airlines có 2 chuyến đến Phú Quốc mỗi ngày từ Tp. HCM và 1 chuyến nếu đi từ Hà Nội.
 
-*Tàu xe*
+**Tàu xe**
 
 Hiện tại, chưa có đường tàu hỏa để đi từ các vùng khác đến Kiên Giang nên nếu không di chuyển bằng máy bay trực tiếp đến nơi, khách du lịch phải đi ô tô hoặc xe máy đến các cảng, rồi sau đó đi tàu thủy để ra được Phú Quốc. Có hai cung đường chính mà du khách dễ đi nhất là từ Tp. HCM đến Rạch Giá hoặc Tp. HCM đến Hà Tiên, sau đó bắt tàu ra thẳng Phú Quốc.
 
 **Có những loại tour nào?**
 
-Tết là mùa cao điểm của du lịch Phú Quốc. Đặt biệt tour tết Phú Quốc 2018 có rất nhiều chương trình hấp dẫn như tour tết Phú Quốc 3 ngày 2 đêm, tour Phú Quốc 4 ngày 3 đêm, tour 4 ngày 4 đêm, 3 ngày 3 đêm,…
+Tết là mùa cao điểm của du lịch Phú Quốc. Đặt biệt tour tết Phú Quốc 2018 có rất nhiều chương trình hấp dẫn như tour tết Phú Quốc 3 ngày 2 đêm, tour Phú Quốc 4 ngày 3 đêm, tour 4 ngày 4 đêm, 3 ngày 3 đêm,…Để biết chi tiết các tour du lịch tết Phú Quốc 2018 bạn có thể truy cập phuquocxanh.com và nhận ngay nhiều ưu đãi nhé!
 
 **Thời tiết Phú Quốc ngày tết như thế nào?**
 
-Tết là mùa khô của đảo Phú Quốc nên thời tiết có nắng, nhiệt độ cao nhất 32 độ C. Nhưng do nằm ở vĩ độ thấp lại lọt sâu vào vùng vịnh Thái Lan, xung quanh biển bao bọc nên thời tiết mát mẻ. Biển Phú Quốc ngày tết rất đẹp bầu trời trong xanh, nước biển cũng trong xanh nên rất thích hợp để tham quan và tắm biển.
+Tết là mùa khô của đảo Phú Quốc nên thời tiết có nắng, nhiệt độ cao nhất 32 độ C. Nhưng do nằm ở vĩ độ thấp lại lọt sâu vào vùng vịnh Thái Lan, xung quanh biển bao bọc nên thời tiết mát mẻ. Biển Phú Quốc ngày tết rất đẹp bầu trời trong xanh, nước biển cũng trong xanh nên rất thích hợp để tham quan và tắm biển
 
 **Hoạt động vui chơi nào là thú vị nhất?**
 
@@ -64,7 +64,7 @@ Mũi Gành Dầu
 
 Vinpearl Land Phú Quốc
 
-Bảo tàng Cội Nguồn
+Bảo tàng Cội Nguồn.
 
 **Đi chơi tết Phú Quốc thì ăn gì ngon?**
 

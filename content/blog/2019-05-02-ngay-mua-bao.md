@@ -1,17 +1,15 @@
 ---
-title: Ngày mưa bão có đi câu cá lặn ngắm san hô Phú Quốc được không?
+title: Mưa bão có đi câu cá lặn ngắm san hô Phú Quốc được không?
 author: [doanbinh]
 ---
 
-Câu cá, lặn ngắm san hô là trải nghiệm lý tưởng mà du khách rất yêu thích khi đi du lịch đảo Phú Quốc để có thể khám phá thế giới đại dương. Nhưng liệu ngày mưa bão có đi câu cá lặn ngắm san hô Phú Quốc được không? 
+Câu cá, lặn ngắm san hô là trải nghiệm lý tưởng mà du khách rất yêu thích khi đi du lịch đảo Phú Quốc để có thể khám phá thế giới đại dương. Nhưng liệu ngày mưa bão có đi câu cá lặn ngắm san hô Phú Quốc được không?
 
-![ten buc hinh](https://phuquoctv.vn/assets/posts/1479292467-lan%20ngam%20san%20ho.jpg "ten buc hinh")
+![ten buc hinh](https://phuquocxanh.com/vi/wp-content/uploads/2017/10/l%E1%BA%B7n-ng%E1%BA%AFm-san-h%C3%B4-6.jpg "ten buc hinh")
 
 Đảo Phú Quốc là thiên đường giải trí với rất nhiều hoạt động với nhiều trải nghiệm thú vị và độc đáo. Một trong những hoạt động hấp dẫn nhất tại đảo được khách tham quan lựa chọn đó là tour câu cá, câu mực và lặn ngắm san hô. Tour câu cá Phú Quốc kéo dài từ nửa ngày đến 1 ngày. Du khách lên thuyền, khám phá hòn đảo hoang sơ và đến địa điểm câu cá. Các thuyền tàu đều chuẩn bị sẵn dụng cụ câu cá như mồi câu, lưỡi câu và hướng dẫn cách câu chính xác.
 
 Khi chính bản thân câu được những chú cá mú, cá hồng hay cá bớp,…và thưởng thức với đa dạng cách chế biến ngay trên thuyền sẽ khiến bất kỳ du khách nào cũng thấy thú vị, vui sướng, khó diễn tả. Và khi buổi chiều tà đến, tham gia hoạt động lặn biển ngắm những rạn san hô sắc màu dưới đại dương sẽ là rất trọn vẹn cho một ngày trên đảo Phú Quốc đầy thú vị, đáng nhớ. Với biển lặng, sóng êm, quần đảo An Thới là một điểm lặn ngắm san hô, câu cá lý tưởng trên đảo Phú Quốc.
-
-**Những ngày mưa nhỏ thì hoạt động câu cá lặn ngắm san hô vẫn diễn ra**
 
 Phú Quốc nằm sâu trong vịnh Thái Lan nên thường ít chịu ảnh hưởng của mưa bão. Chính vì vậy những ngày mưa nhỏ, thời tiết không quá xấu thì hoạt động câu cá lặn ngắm san hô vẫn có thể diễn ra. Tuy nhiên các bạn cũng lưu ý chọn các đơn vị uy tín và được cấp phép hoạt động để đảm bảo an toàn khi đi tour nhé!
 

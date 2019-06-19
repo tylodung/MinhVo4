@@ -1,9 +1,11 @@
 ---
 title: Chào đón 63 hành khách của Bangkok Airways đầu tiên đến đảo Phú Quốc
-author: [zpao]
+author: [doanbinh]
 ---
 
-Chiều 29/10, chuyến bay đầu tiên của hãng hàng không Thái Lan – Bangkok Airways mang số hiệu PG991 chở 63 hành khách đã đáp xuống sân bay Phú Quốc (Kiên Giang). Đây là chuyến bay mở đầu cho kế hoạch hợp tác phát triển đôi bên đã đề ra trước đây. 
+Chiều 29/10, chuyến bay đầu tiên của hãng hàng không Thái Lan – Bangkok Airways mang số hiệu PG991 chở 63 hành khách đã đáp xuống sân bay Phú Quốc (Kiên Giang). 
+
+Đây là chuyến bay mở đầu cho kế hoạch hợp tác phát triển đôi bên đã đề ra trước đây. 
 
 ![ten buc hinh](https://phuquocxanh.com/vi/wp-content/uploads/2017/10/du-lic-phu-quoc-gia-re-2018-768x511.jpg "ten buc hinh")
 

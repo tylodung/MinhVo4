@@ -1,12 +1,12 @@
 ---
 title: Cập nhật hoạt động của Miss Grand International 2017 tại Phú Quốc
 layout: post
-author: [matthewjohnston4]
+author: [doanbinh]
 ---
 
-Theo như kế hoạch dự kiến thì ngày 15/10/2017, dàn thí sinh của Miss Grand 2017 đã đến Phú Quốc để tiếp tục phần thi thứ 2 của mình. Dự kiến các người đẹp sẽ tham gia các hoạt động và hoàn tất cuộc thi từ ngày 15 – 26.10.2017. Sau đây chúng tôi xin cập nhật hoạt động của Miss Grand International 2017 tại Phú Quốc trong những ngày vừa qua
+Theo như kế hoạch dự kiến thì ngày 15/10/2017, dàn thí sinh của Miss Grand 2017 đã đến Phú Quốc để tiếp tục phần thi thứ 2 của mình. Dự kiến các người đẹp sẽ tham gia các hoạt động và hoàn tất cuộc thi từ ngày 15 – 26.10.2017. 
 
-![ten buc hinh](https://phuquocxanh.com/vi/wp-content/uploads/2017/10/miss-grand-ph%C3%BA-qu%E1%BB%91c-2018-13.jpg "ten buc hinh")
+![ten buc hinh](https://en.nhandan.org.vn/cdn/en/media/k2/items/src/559/c1e1cec51ba9675da5cb698f9e059f05.jpg "ten buc hinh")
 
 Ngày 15/10/2017, Phú Quốc chào đón các thí sinh bằng một cơn mưa rất to. Theo Ban Tổ chức cuộc thi Hoa hậu Hòa bình thế giới 2017 (Miss Grand International 2017) cho biết đoàn hoa hậu chia ra thành 2 nhóm để tham gia một số hoạt động đầu tiên tại huyện đảo Phú Quốc (Kiên Giang), như: Tham quan chùa Hộ Quốc, trồng cây tại trục đường Dương Đông – An Thới, tham quan cơ sở ngọc trai, tham quan vườn tiêu, nhà thùng sản xuất nước mắm…
 
@@ -20,8 +20,8 @@ Không chỉ có ngọc trai mà các người đẹp cũng có dịp tìm hiể
 
 Đến Phú Quốc thì tất nhiên là không thể bỏ qua các nhà thùng nước mắm nổi tiếng với truyền thống hàng trăm năm. Tại đây các thí sinh đã được tìm hiểu quy trình tạo nên những giọt nước mắm thơm ngon và nếm thử loại nước chấm rất Việt Nam này.
 
- Không gian xanh mát của những hàng tiêu Phú Quốc thẳng tắp trải dài vô tận làm các các thí sinh vô cùng thích thú. Các người đẹp đã có dịp thưởng thức vị tiêu cay nồng nổi tiếng xứ đảo và có những khoảnh khắc vui đùa thú vị.
+Không gian xanh mát của những hàng tiêu Phú Quốc thẳng tắp trải dài vô tận làm các các thí sinh vô cùng thích thú. Các người đẹp đã có dịp thưởng thức vị tiêu cay nồng nổi tiếng xứ đảo và có những khoảnh khắc vui đùa thú vị.
 
-Theo kế hoạch thì hôm nay 17/10/2017, các thí sinh sẽ tham gia phần thi áo tắm. Đây là một trong những phần thi chính được nhiều khán giả chờ đợi nhất. Phần thi sẽ bắt đầu từ 08h00 – 10h30 và vé vào cổng là 200USD/vé. Giữa không gian bao la, đầy nắng của biển đảo Phú Quốc, chúc các thí sinh sẽ hoàn thành tốt phần thi và tự tin khoe dáng ngọc
+Theo kế hoạch thì hôm nay 17/10/2017, các thí sinh sẽ tham gia phần thi áo tắm. Đây là một trong những phần thi chính được nhiều khán giả chờ đợi nhất. Phần thi sẽ bắt đầu từ 08h00 – 10h30 và vé vào cổng là 200USD/vé. Giữa không gian bao la, đầy nắng của biển đảo Phú Quốc, chúc các thí sinh sẽ hoàn thành tốt phần thi và tự tin khoe dáng ngọc.
 
 Trên đây là phần cập nhật nhanh hoạt động của các thí sinh Miss Grand International 2017 tại đảo ngọc Phú Quốc. Nếu bạn là yêu thích các cuộc thi sắc đẹp hoặc là fan trung thành của Việt Nam thì còn chần chờ gì mà không nhanh chân đến ngay với Phú Quốc để cổ vũ cho đội chủ nhà! Thiên đường Phú Quốc tuyệt đẹp đang chờ đón bạn với rất nhiều điều ý thú để bạn khám phá đấy!

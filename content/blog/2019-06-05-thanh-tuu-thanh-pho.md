@@ -1,11 +1,10 @@
 ---
 title: Những thành tựu sau giai đoạn I của đề án Thành phố thông minh tại Phú Quốc
-author: [josephsavona]
+author: [doanbinh]
 ---
 
 Ngày 27.10.2017  vừa qua, UBND huyện đảo Phú Quốc và VNPT đã chính thức công bố hoàn thành Giai đoạn 1 Đề án xây dựng thành phố thông minh Phú Quốc. Qua đó tại buổi công bố, các đại diện của UBND đảo Phú Quốc và VNPT đã nêu ra những thành quả đạt được trong giai đoạn 1 của đề án như sau:
 
-![ten buc hinh](https://phuquocxanh.com/vi/wp-content/uploads/2017/10/tour-phu-quoc-3-ngay-2-dem.jpg "ten buc hinh")
 
 **Hệ thống Wifi công cộng**
 
@@ -51,6 +50,5 @@ Thống kê khách lưu trú từ ngày 6-2-2017 đến ngày 14-2-2017, đã c�
 
 Đây cũng là mối quan tâm lớn của toàn đảo Phú Quốc bởi sự phát triển nhanh chóng luôn kéo theo những hệ lụy và rác thải ô nhiễm môi trường là vấn nạn lớn. Qua đó, sau giai đoạn I của đề án thành phố thông minh, các bộ phận có liên quan đã tiến hành khảo sát thực địa 4 trạm kiểm soát nước sinh hoạt, 4 trạm kiểm soát nước thải, 16 trạm kiểm soát không khí, 2 trạm kiểm soát nước biển.
 
-![ten buc hinh](https://phuquocxanh.com/vi/wp-content/uploads/2017/10/tour-phu-quoc-3-ngay-2-dem-6.jpg "ten buc hinh")
 
 Phát biểu tại buổi công bố hoàn thành giai đoạn 1 đề án thành phố thông minh Phú Quốc, ông Phạm Đức Long – Tổng giám đốc VNPT – cho rằng, thành phố thông minh Phú Quốc là mô hình đô thị thông minh của cả nước có nhiều tính năng nhất và được xây dựng nhằm vào 3 đối tượng là chính quyền, doanh nghiệp và người dân.Qua đó góp phần thực hiện mục tiêu hiện đại hóa nền hành chính, nâng cao năng lực quản lý, điều hành và phục vụ nhân dân, doanh nghiệp tốt hơn. Đồng thời đưa Phú Quốc trở thành một trong những địa phương khu vực Đồng bằng sông Cửu Long phát triển mạnh chính quyền điện tử.
