@@ -1,9 +1,11 @@
 ---
-title: Đến Phú Quốc mùa mưa phải làm gì để Giày khô nhanh
-author: [zpao]
+title: Đến Phú Quốc mùa mưa phải làm gì để Giày khô nhanh?
+author: [doanbinh]
 ---
 
 Khi đi du lịch chỉ có một đôi giày mà không may lại bị ướt thì thật phiền. Mang giày ướt dễ gây nấm chân và có mùi. Nếu không muốn lỡ mất nhiều cơ hội khám phá, bạn hãy thử vài mẹo làm khô giày nhanh dưới đây nhé.
+
+![ten buc hinh](https://giaydatino.vn/wp-content/uploads/2018/07/cach-lam-kho-giay-nhanh.jpg "ten buc hinh")
 
 1. Cách nhanh nhất là dùng máy sấy tóc nếu khách sạn có sẵn hoặc bạn có mang theo. Nên nhớ là bạn phải sấy ở chế độ nhẹ và ít nóng nhất. Nếu không, hơi nóng sẽ làm cháy hoặc biến dạng giày.
 

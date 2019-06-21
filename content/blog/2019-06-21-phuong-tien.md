@@ -1,6 +1,6 @@
 ---
 title: Phương tiện đi du lịch Phú Quốc
-author: [vjeux]
+author: [doanbinh]
 ---
 
 Để tới Phú Quốc bạn có thể đi bằng máy bay hoặc tàu cao tốc.
